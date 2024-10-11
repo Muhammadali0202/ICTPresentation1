@@ -1,1 +1,0 @@
-# ICTPresentation1
